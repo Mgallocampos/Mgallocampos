@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Michelle Gallo, i have been work in IT for 20 years. I'm graduate and MBA in Management.I 'm curious 
+- 👋 Hi, I’m Michelle Gallo, i have been work in IT for 20 years.I'm Project Leader in Mercado Livre. The biggest Market Place in Brazil. I'm graduate and MBA in Management. I 'm curious and look foward to learn
 - 👀 I’m interested in project management, growth, products, datadriven and no code
 - 🌱 I’m currently learning product growth
 - 💞️ I’m looking to collaborate on Products and OKR's
